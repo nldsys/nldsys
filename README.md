@@ -1,3 +1,3 @@
 ## Hi there! 👋🏼
 
-I'm Anildo, an information systems student in Brazil.
+I'm Anildo, a information systems student in Brazil.
